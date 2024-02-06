@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @HopsAndHops / Meryl B.
 - 👀 I’m interested in language reclaimation and revitalisation.
 - 🌱 I’m currently learning Keyman.
-- 📫 How to reach me ...
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: My username comes from a love of frogs and beer!
 
